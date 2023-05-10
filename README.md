@@ -1,3 +1,0 @@
-# selma-mallem-pols
-
-
